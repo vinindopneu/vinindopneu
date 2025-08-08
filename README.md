@@ -1,7 +1,7 @@
 ## oi , aqui é o vinicius 
 
 <!--
-**vinindopneu/vinindopneu é meu nome aqui , mas , para quem eu rasguei no freefire , brawl stars , cs2 , valorant é glapras 
+**vinindopneu/vinindopneu é meu nome aqui , mas , para quem que eu joguei junto ou contra no freefire , brawl stars , cs2 , valorant é glapras 
 
 Here are some ideas to get you started:
 
